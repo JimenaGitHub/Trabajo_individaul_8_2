@@ -1,1 +1,1 @@
-# Trabajo_individaul_8_2
+# Trabajo_individual_8_2
